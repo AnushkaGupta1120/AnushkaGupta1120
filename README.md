@@ -7,7 +7,7 @@
 - 🎯 Goal: Land a high-impact tech role with exciting challenges 🚀
 
 📫 **How to reach me:**  
-[LinkedIn](https://www.linkedin.com/in/anushkagupta1120) | [Twitter](https://twitter.com/AnushkaGupta1120) | anushka.99250@gmail.com  
+[LinkedIn](https://www.linkedin.com/in/anushkagupta-tech/)| anushka.99250@gmail.com  
 
 😄 Pronouns: She/Her
 
